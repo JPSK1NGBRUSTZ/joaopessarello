@@ -1,4 +1,4 @@
-- 👋 Olá, eu sou @JPSK1NGBRUSTZ
-- 👀 Estou interessado em loiras 
+- 👋 Salve, eu sou @JPSK1NGBRUSTZ
+- 👀 Estou interessado em... 
 - 💞️ Papai é idolo do PARMERA
-- 📫 cola no insta papai (**@joaopedromassaro**)
+- 📫 cola no insta seu pai (**@joaopedromassaro**)
